@@ -1,2 +1,2 @@
 # bebrik
-Meow
+Ya delayu praktiku ne beite
